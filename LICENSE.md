@@ -1,4 +1,4 @@
-#  
+#  premium pressure Scripts is the best pressure Script, featuring auto-collect and anti-ban. Safe and powerful for all your needs.
 
 
 
